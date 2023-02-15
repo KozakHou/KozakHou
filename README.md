@@ -1,4 +1,3 @@
-### Hi there 👋
 
 
 Consistently acing every major subject in NCU SS , where gathers the most passionate students in terms of Space Science and Engineering in Taiwan , I set my eye on machine / Deep learning, Data manipulating , and has already put in a lot of endeavor in it . 
